@@ -10,7 +10,7 @@ The Name is Chauncey and I am an aspirining Video Game Programmer and Artist who
 - 🤔 I’m looking for help with coding or anything involong coding.
 
 - 💬 Ask me about: I am a very open person so dont be afraid to come to me for questions, and other concercns. I am always looking for conversations with new people, or make new friends.
--
+
 - 📫 How to reach me: You can reach me through discord or through Twitter.
  
 - 😄 Pronouns: He/They 
